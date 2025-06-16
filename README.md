@@ -46,7 +46,7 @@ Minor: Data Science | CGPA: 7.12/10
 ## 📫 Let's Connect!
 
 - 📧 Email: [yashjohri20@gmail.com](mailto:yashjohri20@gmail.com)  
-- 🔗 LinkedIn: [linkedin.com/in/yash-johri-1697a426a](https://www.linkedin.com/in/yash-johri-1697a426a)
+- 🔗 LinkedIn: [linkedin.com/in/yashjohri9](https://www.linkedin.com/in/yashjohri9)
 
 ---
 
